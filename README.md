@@ -4,7 +4,7 @@ My name is Victor Rush. I'm in 10th grade. My favorite movie is One Piece film R
 
  I hope to further enhance my knowledge in computer science and learn more about jobs in technology.My most memorable experience in summer was the first day I used the boxing equipment at the small gym I went to. I learned some boxing basics and was able to train once a week for around 3 weeks. Last school year I was a part of a group that made a roblox game for a PBL, where we made an fast fashion obby. I'm currently in the CCHS marching band where we are current LAUSD champions. Our field show this year is Cirque du Soleil: Ka and I'm the lead trumpet of the band.
 
- A creative endeavor I participated in is marching band. Last year we did the field show Summer of Love, with the video being on youtube. [Click me for show!] My favorite summer memory with my friends was when I had my late brithday party and we were all "singing" in by backyard while eating burgers. We had a lot of fun bowling that day and hung out in my living room playing my ps4 until they all left.
+ A creative endeavor I participated in is marching band. Last year we did the field show Summer of Love, with the video being on youtube. [Click me for show!] My favorite summer memory with my friends was when I had my late brithday party and we were all "singing" (we're band kids not choir) in by backyard while eating burgers. We had a lot of fun bowling that day and hung out in my living room playing my ps4 until they all left.
 
  10-song Ado Playlist: [Ado Playlist]
  
